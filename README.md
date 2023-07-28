@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **biswajeetdehuri30@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-M9AsgsvDX4SW930cp1a-krWfdf2yW1O/view?usp=share_link](https://drive.google.com/file/d/1-M9AsgsvDX4SW930cp1a-krWfdf2yW1O/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dzq2Q1AXS3JrHp-bkXAO2aAwdTNnTG_D/view?usp=drive_link](https://drive.google.com/file/d/1dzq2Q1AXS3JrHp-bkXAO2aAwdTNnTG_D/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
